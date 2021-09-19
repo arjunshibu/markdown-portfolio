@@ -1,1 +1,1 @@
-Follow me on [GitHub](http://github.com/arjunshibu)!
+Follow me on [GitHub](https://github.com/arjunshibu)!
